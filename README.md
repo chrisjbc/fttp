@@ -1,1 +1,1 @@
-# fttp
+Ninety percent of users think that our consulting service system is very effective and easy to use, sixty percent think that our system can help them increase sales, and forty percent think that Our system can improve their work efficiency. We will improve the system and add more functions.
